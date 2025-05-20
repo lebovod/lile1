@@ -13,11 +13,11 @@
 多种博彩项目应有尽有（百家乐、轮盘、德州扑克等）
 
 🌐 官方在线渠道：
-📢 Telegram 公告频道： https://t.me/LLYLC8
-👉 利乐娱乐官方频道
-📢 联合推广合作频道： https://t.me/dny558
-👉 东南亚无小事
-📢 联合推广合链接： https://lile1.vip
+📢 Telegram 公告频道： https://t.me/LLYLC8 <br>
+👉 利乐娱乐官方频道<br>
+📢 联合推广合作频道： https://t.me/dny558<br>
+👉 东南亚无小事<br>
+📢 联合推广合链接： https://lile1.vip<br>
 
 🎉 活动推荐：
 利乐娱乐城 × 东南亚无小事 独家联合推出【开业狂欢抽奖活动】！
